@@ -32,6 +32,11 @@ making sure they can't count
 with less stress, excess 
 you know it well has countless names
 
+slicing blades in hands
+feeling so crude with the stance
+but i know i can't press myself
+or i'll blow the fuse for days
+
 ```
 
 ## Lyrics Production
