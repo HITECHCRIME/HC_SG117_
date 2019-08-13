@@ -27,6 +27,11 @@ i follow trends where it truly counts
 i plot my plans as nothing comes without ya
 i ditch friends when I'm truly done (let down)
 
+pushing fake friends 
+making sure they can't count 
+with less stress, excess 
+you know it well has countless names
+
 ```
 
 ## Lyrics Production
