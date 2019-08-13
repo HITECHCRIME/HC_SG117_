@@ -17,7 +17,10 @@ https://www.youtube.com/watch?v=Bo12NBbQ2Mw
 ## Lyrics
 
 ```
-
+i got my credit, nodding head up and down yeah
+i follow trends where it truly counts
+i plot my plans, nothing comes without ya
+i ditch connections when I'm done
 
 ```
 
