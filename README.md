@@ -22,6 +22,11 @@ i follow trends where it truly counts
 i plot my plans, nothing comes without ya
 i ditch connections when I'm done
 
+i got my credit, nodding head up and down yeah
+i follow trends where it truly counts
+i plot my plans as nothing comes without ya
+i ditch friends when I'm truly done (let down)
+
 ```
 
 ## Lyrics Production
