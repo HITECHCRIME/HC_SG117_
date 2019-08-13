@@ -37,6 +37,50 @@ feeling so crude with the stance
 but i know i can't press myself
 or i'll blow the fuse for days
 
+(...)
+
+i got my credit, nodding head up and down yeah
+i follow trends where it truly counts
+i plot my plans, nothing comes without ya
+i ditch connections when I'm done
+
+i got my credit, nodding head up and down yeah
+i follow trends where it truly counts
+i plot my plans as nothing comes without ya
+i ditch friends when I'm truly done (let down)
+
+pushing fake friends 
+making sure they can't count 
+with less stress, excess 
+you know it well has countless names
+
+slicing blades in hands
+feeling so crude with the stance
+but i know i can't press myself
+or i'll blow the fuse for days
+
+(...)
+
+i got my credit, nodding head up and down yeah
+i follow trends where it truly counts
+i plot my plans, nothing comes without ya
+i ditch connections when I'm done
+
+i got my credit, nodding head up and down yeah
+i follow trends where it truly counts
+i plot my plans as nothing comes without ya
+i ditch friends when I'm truly done (let down)
+
+pushing fake friends 
+making sure they can't count 
+with less stress, excess 
+you know it well has countless names
+
+slicing blades in hands
+feeling so crude with the stance
+but i know i can't press myself
+or i'll blow the fuse for days
+
 ```
 
 ## Lyrics Production
