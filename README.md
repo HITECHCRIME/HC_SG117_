@@ -26,6 +26,7 @@ i got my credit, nodding head up and down yeah
 i follow trends where it truly counts
 i plot my plans as nothing comes without ya
 i ditch friends when I'm truly done (let down)
+(i ditch friends when they're truly cunts)
 
 pushing fake friends 
 making sure they can't count 
