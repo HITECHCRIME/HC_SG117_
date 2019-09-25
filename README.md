@@ -11,7 +11,7 @@ https://www.youtube.com/watch?v=Bo12NBbQ2Mw
 
 **Title:** MOTHNODE / **Featuring:** 
 
-**Production:** Apollo Young / **Lyrics:** 
+**Production:** Apollo Young / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
