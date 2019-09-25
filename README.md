@@ -9,7 +9,7 @@
 Description. [FREE] TRAVIS SCOTT x $UICIDEBOY$ TYPE BEAT "Pig"
 https://www.youtube.com/watch?v=Bo12NBbQ2Mw
 
-**Title:** MOTHNODE / **Featuring:** 
+**Title:** MOTHNODE / **Featuring:** MOTHNODE
 
 **Production:** Apollo Young / **Lyrics:** MOTHNODE
 
