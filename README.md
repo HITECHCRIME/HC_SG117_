@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Agreed
 
-**Listen now:** x
+**Listen now:** 
 
 ## Project Data
 
