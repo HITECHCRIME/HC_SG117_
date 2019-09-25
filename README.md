@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_
+# MOTHNODE_ Agreed
 
 **Listen now:** x
 
@@ -9,8 +9,7 @@
 Description. [FREE] TRAVIS SCOTT x $UICIDEBOY$ TYPE BEAT "Pig"
 https://www.youtube.com/watch?v=Bo12NBbQ2Mw
 
-
-**Title:**  / **Featuring:** 
+**Title:** MOTHNODE / **Featuring:** 
 
 **Production:**  / **Lyrics:** 
 
